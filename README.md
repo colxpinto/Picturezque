@@ -9,7 +9,6 @@
 ℳy collection
 
 ![Image](https://github.com/user-attachments/assets/a5f44fb8-bb3c-4b1a-8dac-86e6b167364b)
-![Image](https://github.com/user-attachments/assets/66889cec-efb1-4e0b-a779-6a87bdf5728f)
 ![Image](https://github.com/user-attachments/assets/991d7721-9539-4ac5-89dc-9fcf1ee1412c)
 ![Image](https://github.com/user-attachments/assets/8e3939a5-c54e-4a6c-a901-dc7a43204f30)
 ![Image](https://github.com/user-attachments/assets/e68cc32a-30b0-4fde-862d-a4d0be0eebba)
