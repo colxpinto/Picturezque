@@ -6,6 +6,7 @@
 ‎𝜗𝒞 𓂃 𝗐𝖺𝗇𝗇𝖺 ༝ 𝗋𝖾𝗊𝗎𝖾𝗌𝗍 𝖺 𝖿𝗂𝖼? ✦𓂃 . . 𝒯𝗎𝗆𝖻𝗅𝗋 ─ @/𝗉𝗂𝖼𝗍𝗎𝗋𝖾𝗓𝗊𝗎𝖾 ( 櫻 ) 𝖾𝗌𝗍. 2025
 
 
+
 ℳy collection
 
 ![Image](https://github.com/user-attachments/assets/a5f44fb8-bb3c-4b1a-8dac-86e6b167364b)
@@ -32,3 +33,29 @@
 ![Image](https://github.com/user-attachments/assets/ad42c28c-73e1-40a3-a2ce-ebdde0547998)
 ![Image](https://github.com/user-attachments/assets/1768b11a-2ad3-4136-8d72-830303818b2c)
 ![Image](https://github.com/user-attachments/assets/f34f0b38-3b5f-425a-a256-8f0e030afa7a)
+![Image](https://github.com/user-attachments/assets/9417dc87-b647-4dab-914a-cead8780788a)
+![Image](https://github.com/user-attachments/assets/3dfde940-0563-4a78-9eff-83c8df0ae7d7)
+![Image](https://github.com/user-attachments/assets/17318eaf-c090-4fae-ae8e-20b79dcbcfcb)
+![Image](https://github.com/user-attachments/assets/d8b17097-ef75-4e4f-a71f-bd7d611c829c)
+![Image](https://github.com/user-attachments/assets/20c8e835-44b2-4f93-a562-eff14e224c87)
+![Image](https://github.com/user-attachments/assets/3d0d0c18-8318-4606-aedc-9e5160925d44)
+![Image](https://github.com/user-attachments/assets/848e3a4b-58ff-474d-9702-b41d7652331f)
+![Image](https://github.com/user-attachments/assets/0a5290f1-4b1f-4654-afe9-b307cef242ee)
+![Image](https://github.com/user-attachments/assets/f005f47a-5397-452c-a341-72be07b7cecf)
+![Image](https://github.com/user-attachments/assets/07b5d2a8-3b2b-473d-8c13-a61538e0f1b0)
+![Image](https://github.com/user-attachments/assets/cffebe26-4ecf-4835-bad3-d929544222fb)
+![Image](https://github.com/user-attachments/assets/0b4cd4ca-a279-46eb-98fc-d5ba5452717a)
+![Image](https://github.com/user-attachments/assets/d159a6d6-8789-43db-8b15-2c24842ff6fa)
+![Image](https://github.com/user-attachments/assets/38d03b67-1512-4afa-a58a-d2992b3631f2)
+![Image](https://github.com/user-attachments/assets/5fde8699-1754-4fb7-9cb8-873fa3992785)
+![Image](https://github.com/user-attachments/assets/af00e47b-c959-45cc-acc8-454260169f3f)
+![Image](https://github.com/user-attachments/assets/4ab18147-808b-440a-9659-be0151cc34e8)
+![Image](https://github.com/user-attachments/assets/42321cc0-5fb6-4451-ae2c-b51bd23bd510)
+
+
+
+
+JACKY POO COME BACKK WE NEED YOU
+
+https://github.com/user-attachments/assets/b59487a8-c26c-4fb1-805c-f08fff58cb9a
+
